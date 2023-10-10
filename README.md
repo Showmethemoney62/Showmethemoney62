@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Showmethemoney62
+- 👋  Hi, I’m at fishglenn04@gmail.comShowmethemoney62
 - 👀 I’m interested in forming a security circle for my pi mining team
 - 🌱 I’m currently learning the steps to the pi crypto currency
 - 💞️ I’m looking to collaborate on a team for my group
